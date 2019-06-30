@@ -1,1 +1,1 @@
-For the use of improvement & preservation of measurment & verification processes.
+For the use of improvement & preservation & building of measurment & verification processes with software & hardware.
