@@ -7,4 +7,4 @@ www.conceptslearningmachine.com
 
 catalanoconcepts@gmail.com
 
-phone.number_+19737361409
+phone number:+19737361409
