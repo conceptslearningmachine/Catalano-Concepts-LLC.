@@ -2,9 +2,6 @@
 
    
     
-    
-www.conceptslearningmachine.com 
-
-catalanoconcepts@gmail.com
+   Catalano Concepts Limited Liability Company
 
 
